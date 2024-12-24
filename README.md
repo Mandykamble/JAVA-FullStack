@@ -66,38 +66,4 @@ Prepare Technical Design document for the above, include user journey flow with 
 
 
 
-Thanks & Regards
-Raj
- 
-5 Ang Mo Kio Street 62
-NCS Hub, Singapore 569141
-Planned Leave: 16 Jan 25 to 03 Feb 25
-Planned Training : 
-Planned Business Trips: 
 
------Original Appointment-----
-From: Adina Pamei (NCS) <adina.pamei@in.ncs-i.com> 
-Sent: Tuesday, December 17, 2024 6:38 PM
-To: Adina Pamei (NCS); Gattu Rajendra Babu (NCS); Mandar Kamble (NCS)
-Cc: Shakti Vyas (NCS)
-Subject: FSI | Opportunity Discussion | Mandar Rajpal Kamble
-When: Friday, December 20, 2024 3:30 PM-4:00 PM (UTC+05:30) Chennai, Kolkata, Mumbai, New Delhi.
-Where: Microsoft Teams Meeting
-
-Moving this schedule to 3:30pm IST due to Raj’s critical meeting.
-________________________________________________________________________________
-Microsoft Teams Need help? 
-Join the meeting now 
-Meeting ID: 418 399 742 537 
-Passcode: 9TC9dH2K 
-________________________________________
-Dial in by phone 
-+65 6450 6378,,689309031# Singapore, All locations 
-Find a local number 
-Phone conference ID: 689 309 031# 
-Join on a video conferencing device 
-Tenant key: teams@ncs.onpexip.com 
-Video ID: 136 311 192 2 
-More info 
-For organizers: Meeting options | Reset dial-in PIN 
-________________________________________________________________________________
